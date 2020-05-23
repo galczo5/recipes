@@ -1,7 +1,7 @@
 # Tzatziki
 Sauce found in the cuisines of Southeast Europe and the Middle East
 
----
+
 ## Ingredients
 * Cucumber
 * Thick greek yogurt
@@ -10,7 +10,7 @@ Sauce found in the cuisines of Southeast Europe and the Middle East
 * Salt to taste
 * Pepper (any kind) to taste
 
----
+
 ## Recipe
 1. Grate whole (do not peel the skin) cucumber using medium holes of grater.
 2. Remove as much cucumber water as you can, add pinch of salt and leave it for 10 minutes.
@@ -21,7 +21,7 @@ Sauce found in the cuisines of Southeast Europe and the Middle East
 6. Add salt and pepper to taste.
 7. Cool it in fridge for one hour.
 
----
+
 ## Notes
 Please be sure that cucumber is almost dry. 
 Serve it with grilled chicken and potatoes for most satisfying result.
