@@ -15,7 +15,21 @@ Only the recipes that I've checked.
 **NOTE** Honey is only for color. I'm using one teaspoon of paprika instead.
 
 [Aioli](https://www.youtube.com/watch?v=KZTP3c0j7zc&ab_channel=FoodWishes)  
-**NOTE** Pay attention how he smash the garlic. Garlic in this recipe should be like paste. 
+**NOTE** Pay attention how he smash the garlic. Garlic in this recipe should be like paste.
+
+[Italian leek and garlic soup](https://www.youtube.com/watch?v=GdcCVZ_D7hQ&ab_channel=Recipe30)
+
+[Tuscan Bean Soup Recipe](https://www.youtube.com/watch?v=_SMTu3-md3U&ab_channel=FoodWishes)
+
+[Neapolitan Pizza Dough](https://www.youtube.com/watch?v=HkXojFU_LrE&ab_channel=St%C3%A4dlerMade) 
+
+[Pasta Dough](https://www.youtube.com/watch?v=RY9u0STwqiw&ab_channel=GennaroContaldo)
+
+[Czech garlic soup](https://www.youtube.com/watch?v=CNk3nQyU3MI&ab_channel=SkutecznieTv)
+
+[Spaghetti Carbonara](https://www.youtube.com/watch?v=3AAdKl1UYZs&ab_channel=JamieOliver)
+
+[Tomato sauce for pizza](https://www.youtube.com/watch?v=9Ikknmv3DYg&ab_channel=VitoIacopelli)
 
 ### Youtube channels
 
