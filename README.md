@@ -31,6 +31,14 @@ Only the recipes that I've checked.
 
 [Tomato sauce for pizza](https://www.youtube.com/watch?v=9Ikknmv3DYg&ab_channel=VitoIacopelli)
 
+[BLT](https://www.youtube.com/watch?v=BiTdrSUXua8&ab_channel=CowboyKentRollins)
+
+[Pork and Chili](https://www.youtube.com/watch?v=WujehK7kYLM&ab_channel=ChineseCookingDemystified)  
+**NOTE** Pork has to be chopped very thin, check 00:30 on the movie.
+
+[Chana masala](https://www.youtube.com/watch?v=iKMI1xkU_oo&ab_channel=AdamRagusea)  
+**NOTE** Make it hard way, then blend it for better texture. 
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)  
