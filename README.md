@@ -1,5 +1,3 @@
-# My recipes as github repo
-
 ![image](./image.gif)
 
 Only the recipes that I've checked. 
@@ -11,7 +9,7 @@ Only the recipes that I've checked.
 [Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
 **NOTE** Water, the less is the better.
 
-[Fish and Chips](https://www.youtube.com/watch?v=wGjS8fLI7eQ&t=320s&ab_channel=JamieOliver)  
+[Fish and chips](https://www.youtube.com/watch?v=wGjS8fLI7eQ&t=320s&ab_channel=JamieOliver)  
 **NOTE** Honey is only for color. I'm using one teaspoon of paprika instead.
 
 [Aioli](https://www.youtube.com/watch?v=KZTP3c0j7zc&ab_channel=FoodWishes)  
@@ -19,11 +17,11 @@ Only the recipes that I've checked.
 
 [Italian leek and garlic soup](https://www.youtube.com/watch?v=GdcCVZ_D7hQ&ab_channel=Recipe30)
 
-[Tuscan Bean Soup Recipe](https://www.youtube.com/watch?v=_SMTu3-md3U&ab_channel=FoodWishes)
+[Tuscan bean soup](https://www.youtube.com/watch?v=_SMTu3-md3U&ab_channel=FoodWishes)
 
-[Neapolitan Pizza Dough](https://www.youtube.com/watch?v=HkXojFU_LrE&ab_channel=St%C3%A4dlerMade) 
+[Neapolitan pizza dough](https://www.youtube.com/watch?v=HkXojFU_LrE&ab_channel=St%C3%A4dlerMade) 
 
-[Pasta Dough](https://www.youtube.com/watch?v=RY9u0STwqiw&ab_channel=GennaroContaldo)
+[Pasta dough](https://www.youtube.com/watch?v=RY9u0STwqiw&ab_channel=GennaroContaldo)
 
 [Czech garlic soup](https://www.youtube.com/watch?v=CNk3nQyU3MI&ab_channel=SkutecznieTv)
 
@@ -33,7 +31,7 @@ Only the recipes that I've checked.
 
 [BLT](https://www.youtube.com/watch?v=BiTdrSUXua8&ab_channel=CowboyKentRollins)
 
-[Pork and Chili](https://www.youtube.com/watch?v=WujehK7kYLM&ab_channel=ChineseCookingDemystified)  
+[Pork and chili](https://www.youtube.com/watch?v=WujehK7kYLM&ab_channel=ChineseCookingDemystified)  
 **NOTE** Pork has to be chopped very thin, check 00:30 on the movie.
 
 [Chana masala](https://www.youtube.com/watch?v=iKMI1xkU_oo&ab_channel=AdamRagusea)  
