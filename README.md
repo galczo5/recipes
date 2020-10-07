@@ -39,6 +39,9 @@ Only the recipes that I've checked.
 [Chana masala](https://www.youtube.com/watch?v=iKMI1xkU_oo&ab_channel=AdamRagusea)  
 **NOTE** Make it hard way, then blend it for better texture. 
 
+[Ginger garlic paste](https://www.youtube.com/watch?v=JKKD4zSHtOo&ab_channel=CookingShookingHindi)  
+**NOTE** I'm always making small amounts of paste and using it at the same day. It's better fresh and storing is problematic.
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)  
