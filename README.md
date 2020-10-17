@@ -40,6 +40,12 @@ Only the recipes that I've checked.
 [Ginger garlic paste](https://www.youtube.com/watch?v=JKKD4zSHtOo&ab_channel=CookingShookingHindi)  
 **NOTE** I'm always making small amounts of paste and using it at the same day. It's better fresh and storing is problematic.
 
+[Cacio e Pepe](https://www.youtube.com/watch?v=UzhkMm7gV2w&ab_channel=JamieOliver)  
+**NOTE** You need only two ingredients, make sure you have the best quality you can afford.
+
+[Crispy French Fries](https://www.youtube.com/watch?v=dklh4oKifVQ&ab_channel=EthanChlebowski)  
+**NOTE** One of the best recipes for french fries. You don't have to make it using deep fry, I've tested it using shallow fry technique on big wok pan results were fantastic. Fits with Aioli.
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)  
@@ -58,3 +64,5 @@ A lot of recipes from Gordon Ramsay.
 
 [Gordon Ramsay](https://www.youtube.com/user/gordonramsay)  
 The home of Gordon Ramsay on YouTube.
+
+[Ethan Chlebowski](https://www.youtube.com/channel/UCDq5v10l4wkV5-ZBIJJFbzQ)
