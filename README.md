@@ -46,6 +46,15 @@ Only the recipes that I've checked.
 [Crispy French Fries](https://www.youtube.com/watch?v=dklh4oKifVQ&ab_channel=EthanChlebowski)  
 **NOTE** One of the best recipes for french fries. You don't have to make it using deep fry, I've tested it using shallow fry technique on big wok pan results were fantastic. Fits with Aioli.
 
+[Butter Chicken](https://www.youtube.com/watch?v=a03U45jFxOI&ab_channel=GetCurried)  
+
+[Burger Buns](https://www.youtube.com/watch?v=ace-TXcX6GY&ab_channel=FoodWishes)  
+**NOTE** Use [this](https://www.youtube.com/watch?v=8RV-sKOqr3c&ab_channel=EthanChlebowski) trick from Ethan, bake buns in rings. It's good to put baking paper inside rings.
+
+[Roti](https://www.bongeats.com/recipe/roti)
+
+[Black Bean Soup](https://www.youtube.com/watch?v=mTwBK39EWok&ab_channel=FoodWishes)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)  
