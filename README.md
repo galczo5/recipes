@@ -1,19 +1,27 @@
 ![image](./image.gif)
 
-Only the recipes that I've checked. 
-
-### Recipes:
+# Drinks
 
 [Limoncello](https://www.youtube.com/watch?v=AWZlnMmnE3I&ab_channel=JamieOliver-Drinks)
 
-[Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
-**NOTE** Water, the less is the better.
+[Watermelon Agua Fresca](https://www.youtube.com/watch?v=KiCh8dVsbQU&ab_channel=FoodWishes)
+
+# Meat
 
 [Fish and chips](https://www.youtube.com/watch?v=wGjS8fLI7eQ&t=320s&ab_channel=JamieOliver)  
 **NOTE** Honey is only for color. I'm using one teaspoon of paprika instead.
 
+[Spaghetti Carbonara](https://www.youtube.com/watch?v=3AAdKl1UYZs&ab_channel=JamieOliver)
+
+[Butter Chicken](https://www.youtube.com/watch?v=a03U45jFxOI&ab_channel=GetCurried)
+
+# Non-meat
+
+[Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
+**NOTE** Water, the less is the better.
+
 [Aioli](https://www.youtube.com/watch?v=KZTP3c0j7zc&ab_channel=FoodWishes)  
-**NOTE** Pay attention how he smash the garlic. Garlic in this recipe should be like paste.
+**NOTE** Pay attention to the garlic. Garlic in this recipe should be like paste.
 
 [Italian leek and garlic soup](https://www.youtube.com/watch?v=GdcCVZ_D7hQ&ab_channel=Recipe30)
 
@@ -25,17 +33,15 @@ Only the recipes that I've checked.
 
 [Czech garlic soup](https://www.youtube.com/watch?v=CNk3nQyU3MI&ab_channel=SkutecznieTv)
 
-[Spaghetti Carbonara](https://www.youtube.com/watch?v=3AAdKl1UYZs&ab_channel=JamieOliver)
-
 [Tomato sauce for pizza](https://www.youtube.com/watch?v=9Ikknmv3DYg&ab_channel=VitoIacopelli)
 
 [BLT](https://www.youtube.com/watch?v=BiTdrSUXua8&ab_channel=CowboyKentRollins)
 
 [Pork and chili](https://www.youtube.com/watch?v=WujehK7kYLM&ab_channel=ChineseCookingDemystified)  
-**NOTE** Pork has to be chopped very thin, check 00:30 on the movie.
+**NOTE** Pork has to be chopped very thin, check 00:30 in the movie.
 
 [Chana masala](https://www.youtube.com/watch?v=iKMI1xkU_oo&ab_channel=AdamRagusea)  
-**NOTE** Make it hard way, then blend it for better texture. 
+**NOTE** Make it according to the hard way, then blend it for better texture. 
 
 [Ginger garlic paste](https://www.youtube.com/watch?v=JKKD4zSHtOo&ab_channel=CookingShookingHindi)  
 **NOTE** I'm always making small amounts of paste and using it at the same day. It's better fresh and storing is problematic.
@@ -44,9 +50,10 @@ Only the recipes that I've checked.
 **NOTE** You need only two ingredients, make sure you have the best quality you can afford.
 
 [Crispy French Fries](https://www.youtube.com/watch?v=dklh4oKifVQ&ab_channel=EthanChlebowski)  
-**NOTE** One of the best recipes for french fries. You don't have to make it using deep fry, I've tested it using shallow fry technique on big wok pan results were fantastic. Fits with Aioli.
-
-[Butter Chicken](https://www.youtube.com/watch?v=a03U45jFxOI&ab_channel=GetCurried)  
+**NOTE** One of the best recipes for french fries. 
+You don't have to make it using deep-fry, 
+I've tested it using shallow fry technique on big wok pan results were fantastic. 
+Fits with Aioli.
 
 [Burger Buns](https://www.youtube.com/watch?v=ace-TXcX6GY&ab_channel=FoodWishes)  
 **NOTE** Use [this](https://www.youtube.com/watch?v=8RV-sKOqr3c&ab_channel=EthanChlebowski) trick from Ethan, bake buns in rings. It's good to put baking paper inside rings.
@@ -54,6 +61,14 @@ Only the recipes that I've checked.
 [Roti](https://www.bongeats.com/recipe/roti)
 
 [Black Bean Soup](https://www.youtube.com/watch?v=mTwBK39EWok&ab_channel=FoodWishes)
+
+[Oat Milk Dutch Baby with Strawberries and Rhubarb](https://www.youtube.com/watch?v=fByBW-bqdtk&ab_channel=FoodWishes)
+
+[Restaurant Style Dal Tadka](https://www.youtube.com/watch?v=XzVxjs3PTm4&ab_channel=CookingShooking)
+
+[Sabz Diwani Handi](https://www.youtube.com/watch?v=DT8ImRc72-w&ab_channel=YourFoodLab)
+
+[Dal Makhani](https://www.youtube.com/watch?v=f1lpCi_70sQ&ab_channel=YourFoodLab)
 
 ### Youtube channels
 
@@ -75,3 +90,5 @@ A lot of recipes from Gordon Ramsay.
 The home of Gordon Ramsay on YouTube.
 
 [Ethan Chlebowski](https://www.youtube.com/channel/UCDq5v10l4wkV5-ZBIJJFbzQ)
+
+[Rainbow Plant Life](https://www.youtube.com/c/RainbowPlantLife/)
