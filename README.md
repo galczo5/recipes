@@ -70,18 +70,19 @@ Fits with Aioli.
 
 [Dal Makhani](https://www.youtube.com/watch?v=f1lpCi_70sQ&ab_channel=YourFoodLab)
 
+### To try
+
+[Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
+
+[Stir fry udon with vegetables](https://www.youtube.com/watch?v=KXjk2HDd5xI&ab_channel=TheFoodieTakesFlight)
+
 ### Youtube channels
 
-[Food Wishes](https://www.youtube.com/user/foodwishes)  
+[Food Wishes](https://www.youtube.com/user/foodwishes)
+Tons of recipes, any style.
 
 [Joshua Weissman](https://www.youtube.com/channel/UChBEbMKI1eCcejTtmI32UEw)
-
-[Taste Show](https://www.youtube.com/channel/UCkRBu0K655809AdvDajyJJA)  
-One of the best channels about chinese restaurant style cooking.
-
-[CookingShooking](https://www.youtube.com/user/CookingShooking)
-
-[Chinese Cooking Demystified](https://www.youtube.com/channel/UC54SLBnD5k5U3Q6N__UjbAw)
+High quality, restaurant style recipes.
 
 [The F Word](https://www.youtube.com/user/theFword)  
 A lot of recipes from Gordon Ramsay.
@@ -91,4 +92,17 @@ The home of Gordon Ramsay on YouTube.
 
 [Ethan Chlebowski](https://www.youtube.com/channel/UCDq5v10l4wkV5-ZBIJJFbzQ)
 
+#### Chinese
+
+[Taste Show](https://www.youtube.com/channel/UCkRBu0K655809AdvDajyJJA)
+One of the best channels about chinese restaurant style cooking.
+
+[Chinese Cooking Demystified](https://www.youtube.com/channel/UC54SLBnD5k5U3Q6N__UjbAw)
+
+#### Indian recipes, mostly vegan/vegetarian
+
 [Rainbow Plant Life](https://www.youtube.com/c/RainbowPlantLife/)
+
+[Your Food Lab](https://www.youtube.com/c/YourFoodLab)
+
+[CookingShooking](https://www.youtube.com/user/CookingShooking)
