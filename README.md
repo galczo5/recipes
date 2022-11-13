@@ -15,6 +15,14 @@
 
 [Butter Chicken](https://www.youtube.com/watch?v=a03U45jFxOI&ab_channel=GetCurried)
 
+[BLT](https://www.youtube.com/watch?v=BiTdrSUXua8&ab_channel=CowboyKentRollins)
+
+[Pork and chili](https://www.youtube.com/watch?v=WujehK7kYLM&ab_channel=ChineseCookingDemystified)
+
+[Pork Souvlaki](https://www.youtube.com/watch?v=yZ7PMaCQIP8&ab_channel=Ken%27sGreekTable)
+
+**NOTE** Pork has to be chopped very thin, check 00:30 in the movie.
+
 # Non-meat
 
 [Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
@@ -22,6 +30,8 @@
 
 [Aioli](https://www.youtube.com/watch?v=KZTP3c0j7zc&ab_channel=FoodWishes)  
 **NOTE** Pay attention to the garlic. Garlic in this recipe should be like paste.
+
+[Hummus](./src/HUMMUS.md)
 
 [Italian leek and garlic soup](https://www.youtube.com/watch?v=GdcCVZ_D7hQ&ab_channel=Recipe30)
 
@@ -34,11 +44,6 @@
 [Czech garlic soup](https://www.youtube.com/watch?v=CNk3nQyU3MI&ab_channel=SkutecznieTv)
 
 [Tomato sauce for pizza](https://www.youtube.com/watch?v=9Ikknmv3DYg&ab_channel=VitoIacopelli)
-
-[BLT](https://www.youtube.com/watch?v=BiTdrSUXua8&ab_channel=CowboyKentRollins)
-
-[Pork and chili](https://www.youtube.com/watch?v=WujehK7kYLM&ab_channel=ChineseCookingDemystified)  
-**NOTE** Pork has to be chopped very thin, check 00:30 in the movie.
 
 [Chana masala](https://www.youtube.com/watch?v=iKMI1xkU_oo&ab_channel=AdamRagusea)  
 **NOTE** Make it according to the hard way, then blend it for better texture. 
@@ -70,27 +75,34 @@ Fits with Aioli.
 
 [Dal Makhani](https://www.youtube.com/watch?v=f1lpCi_70sQ&ab_channel=YourFoodLab)
 
+[Pita](https://www.youtube.com/watch?v=NPiA69p4gqE&ab_channel=FoodWishes)
+
 ### To try
 
 [Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
 
 [Stir fry udon with vegetables](https://www.youtube.com/watch?v=KXjk2HDd5xI&ab_channel=TheFoodieTakesFlight)
 
+[Garlic White Bean Dip](https://www.youtube.com/watch?v=6OUN-XLyt5Y&ab_channel=JOOSFood)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
-Tons of recipes, any style.
 
 [Joshua Weissman](https://www.youtube.com/channel/UChBEbMKI1eCcejTtmI32UEw)
-High quality, restaurant style recipes.
 
 [The F Word](https://www.youtube.com/user/theFword)  
 A lot of recipes from Gordon Ramsay.
 
 [Gordon Ramsay](https://www.youtube.com/user/gordonramsay)  
-The home of Gordon Ramsay on YouTube.
 
 [Ethan Chlebowski](https://www.youtube.com/channel/UCDq5v10l4wkV5-ZBIJJFbzQ)
+
+[My Name Is Andong](https://www.youtube.com/c/mynameisandong)
+
+[OrsaraRecipes](https://www.youtube.com/c/OrsaraRecipes)
+
+[J. Kenji López-Alt](https://www.youtube.com/c/JKenjiLopezAlt)
 
 #### Chinese
 
