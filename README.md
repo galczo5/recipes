@@ -77,6 +77,8 @@ Fits with Aioli.
 
 [Pita](https://www.youtube.com/watch?v=NPiA69p4gqE&ab_channel=FoodWishes)
 
+[Kartoffelsuppe](https://www.youtube.com/watch?v=iqWLDI4IuZY&ab_channel=inthekitchenwithelisa)
+
 ### To try
 
 [Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
