@@ -89,6 +89,8 @@ Fits with Aioli.
 
 [Garlic White Bean Dip](https://www.youtube.com/watch?v=6OUN-XLyt5Y&ab_channel=JOOSFood)
 
+[Chicken Marsala](https://www.youtube.com/watch?v=AWNU1OccN5Q&ab_channel=OrsaraRecipes)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
