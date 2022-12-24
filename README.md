@@ -23,6 +23,8 @@
 
 **NOTE** Pork has to be chopped very thin, check 00:30 in the movie.
 
+[Kartoffelsuppe](https://www.youtube.com/watch?v=iqWLDI4IuZY&ab_channel=inthekitchenwithelisa)
+
 # Non-meat
 
 [Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
@@ -79,7 +81,7 @@ Fits with Aioli.
 
 [Pita](https://www.youtube.com/watch?v=NPiA69p4gqE&ab_channel=FoodWishes)
 
-[Kartoffelsuppe](https://www.youtube.com/watch?v=iqWLDI4IuZY&ab_channel=inthekitchenwithelisa)
+[Garlic White Bean Dip](https://www.youtube.com/watch?v=6OUN-XLyt5Y&ab_channel=JOOSFood)
 
 ### To try
 
@@ -87,9 +89,9 @@ Fits with Aioli.
 
 [Stir fry udon with vegetables](https://www.youtube.com/watch?v=KXjk2HDd5xI&ab_channel=TheFoodieTakesFlight)
 
-[Garlic White Bean Dip](https://www.youtube.com/watch?v=6OUN-XLyt5Y&ab_channel=JOOSFood)
-
 [Chicken Marsala](https://www.youtube.com/watch?v=AWNU1OccN5Q&ab_channel=OrsaraRecipes)
+
+[Kartoffelknödel](https://www.youtube.com/watch?v=C4By08g7BAI&ab_channel=MyNameIsAndong)
 
 ### Youtube channels
 
