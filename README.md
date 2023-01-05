@@ -83,6 +83,10 @@ Fits with Aioli.
 
 [Garlic White Bean Dip](https://www.youtube.com/watch?v=6OUN-XLyt5Y&ab_channel=JOOSFood)
 
+[Kartoffelknödel](https://www.youtube.com/watch?v=C4By08g7BAI&ab_channel=MyNameIsAndong) \
+**NOTE** Use the right amount of potato starch.
+It depends on the potatoes you have.
+
 ### To try
 
 [Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
@@ -91,7 +95,7 @@ Fits with Aioli.
 
 [Chicken Marsala](https://www.youtube.com/watch?v=AWNU1OccN5Q&ab_channel=OrsaraRecipes)
 
-[Kartoffelknödel](https://www.youtube.com/watch?v=C4By08g7BAI&ab_channel=MyNameIsAndong)
+[Pan De Cristal](https://www.youtube.com/watch?v=6sOEHrawhX0&ab_channel=KingArthurBakingCompany)
 
 ### Youtube channels
 
