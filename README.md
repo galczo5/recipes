@@ -97,6 +97,8 @@ It depends on the potatoes you have.
 
 [Pan De Cristal](https://www.youtube.com/watch?v=6sOEHrawhX0&ab_channel=KingArthurBakingCompany)
 
+[Currywurst](https://www.youtube.com/watch?v=osAu-7-7IQY&ab_channel=TopGar)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
