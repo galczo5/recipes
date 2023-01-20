@@ -25,6 +25,8 @@
 
 [Kartoffelsuppe](https://www.youtube.com/watch?v=iqWLDI4IuZY&ab_channel=inthekitchenwithelisa)
 
+[Currywurst](https://www.youtube.com/watch?v=osAu-7-7IQY&ab_channel=TopGar)
+
 # Non-meat
 
 [Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
@@ -97,7 +99,7 @@ It depends on the potatoes you have.
 
 [Pan De Cristal](https://www.youtube.com/watch?v=6sOEHrawhX0&ab_channel=KingArthurBakingCompany)
 
-[Currywurst](https://www.youtube.com/watch?v=osAu-7-7IQY&ab_channel=TopGar)
+[Chicken alla Diavola](https://www.youtube.com/watch?v=gnXNvALpQjc&ab_channel=OrsaraRecipes)
 
 ### Youtube channels
 
