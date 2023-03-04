@@ -89,6 +89,8 @@ Fits with Aioli.
 **NOTE** Use the right amount of potato starch.
 It depends on the potatoes you have.
 
+[Bulgur Pilavı](https://www.youtube.com/watch?v=1mIZOoE6zsQ&ab_channel=DonImranFamilyKitchen)
+
 ### To try
 
 [Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
