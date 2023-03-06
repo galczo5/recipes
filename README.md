@@ -103,6 +103,8 @@ It depends on the potatoes you have.
 
 [Chicken alla Diavola](https://www.youtube.com/watch?v=gnXNvALpQjc&ab_channel=OrsaraRecipes)
 
+[Lentil Taco](https://www.youtube.com/watch?v=RbDmrCloQK4&ab_channel=AdamRagusea)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
