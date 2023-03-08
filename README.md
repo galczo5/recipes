@@ -105,6 +105,8 @@ It depends on the potatoes you have.
 
 [Lentil Taco](https://www.youtube.com/watch?v=RbDmrCloQK4&ab_channel=AdamRagusea)
 
+[Daikon and Carrots](https://www.youtube.com/watch?v=Q5ieUyPSxBo&ab_channel=ThunThunChannel)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
