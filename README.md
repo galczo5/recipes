@@ -107,6 +107,8 @@ It depends on the potatoes you have.
 
 [Daikon and Carrots](https://www.youtube.com/watch?v=Q5ieUyPSxBo&ab_channel=ThunThunChannel)
 
+[Lentil Curry](https://www.youtube.com/watch?v=vDS9JZfEnuY&ab_channel=YeungManCooking)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
