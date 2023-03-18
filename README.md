@@ -109,6 +109,8 @@ It depends on the potatoes you have.
 
 [Lentil Curry](https://www.youtube.com/watch?v=vDS9JZfEnuY&ab_channel=YeungManCooking)
 
+[Gochujang Garlic Tofu Rice Bowl](https://www.youtube.com/watch?v=y_1AVqirnH0&ab_channel=AaronandClaire)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
