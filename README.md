@@ -27,6 +27,10 @@
 
 [Currywurst](https://www.youtube.com/watch?v=osAu-7-7IQY&ab_channel=TopGar)
 
+[Chicken alla Diavola](https://www.youtube.com/watch?v=gnXNvALpQjc&ab_channel=OrsaraRecipes)
+
+[Chicken Marsala](https://www.youtube.com/watch?v=AWNU1OccN5Q&ab_channel=OrsaraRecipes)
+
 # Non-meat
 
 [Tzatziki](https://www.youtube.com/watch?v=OOkL5d8t1sM&t=263s&ab_channel=FoodWishes)  
@@ -91,25 +95,23 @@ It depends on the potatoes you have.
 
 [Bulgur Pilavı](https://www.youtube.com/watch?v=1mIZOoE6zsQ&ab_channel=DonImranFamilyKitchen)
 
+[Daikon and Carrots](https://www.youtube.com/watch?v=Q5ieUyPSxBo&ab_channel=ThunThunChannel)
+
 ### To try
 
 [Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
 
 [Stir fry udon with vegetables](https://www.youtube.com/watch?v=KXjk2HDd5xI&ab_channel=TheFoodieTakesFlight)
 
-[Chicken Marsala](https://www.youtube.com/watch?v=AWNU1OccN5Q&ab_channel=OrsaraRecipes)
-
 [Pan De Cristal](https://www.youtube.com/watch?v=6sOEHrawhX0&ab_channel=KingArthurBakingCompany)
 
-[Chicken alla Diavola](https://www.youtube.com/watch?v=gnXNvALpQjc&ab_channel=OrsaraRecipes)
-
 [Lentil Taco](https://www.youtube.com/watch?v=RbDmrCloQK4&ab_channel=AdamRagusea)
-
-[Daikon and Carrots](https://www.youtube.com/watch?v=Q5ieUyPSxBo&ab_channel=ThunThunChannel)
 
 [Lentil Curry](https://www.youtube.com/watch?v=vDS9JZfEnuY&ab_channel=YeungManCooking)
 
 [Gochujang Garlic Tofu Rice Bowl](https://www.youtube.com/watch?v=y_1AVqirnH0&ab_channel=AaronandClaire)
+
+[Muhammara](https://www.youtube.com/watch?v=Qy4sQq4P7uo&ab_channel=HungryManKitchen)
 
 ### Youtube channels
 
