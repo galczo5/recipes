@@ -113,6 +113,8 @@ It depends on the potatoes you have.
 
 [Muhammara](https://www.youtube.com/watch?v=Qy4sQq4P7uo&ab_channel=HungryManKitchen)
 
+[Chilli Pork](https://www.youtube.com/watch?v=VjVYttymMTA&ab_channel=BongEats)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
