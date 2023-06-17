@@ -115,6 +115,8 @@ It depends on the potatoes you have.
 
 [Chilli Pork](https://www.youtube.com/watch?v=VjVYttymMTA&ab_channel=BongEats)
 
+[Salsa Roja & Salsa Verde](https://www.youtube.com/watch?v=wZBEwjzcmjw&ab_channel=ArnieTex)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
