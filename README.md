@@ -117,6 +117,8 @@ It depends on the potatoes you have.
 
 [Salsa Roja & Salsa Verde](https://www.youtube.com/watch?v=wZBEwjzcmjw&ab_channel=ArnieTex)
 
+[Fasolada](https://www.youtube.com/watch?v=1s22lUYEOQI&ab_channel=AkisPetretzikis)
+
 ### Youtube channels
 
 [Food Wishes](https://www.youtube.com/user/foodwishes)
