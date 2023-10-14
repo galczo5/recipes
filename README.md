@@ -41,6 +41,8 @@
 
 [Hummus](./src/HUMMUS.md)
 
+[Muhammara](https://www.youtube.com/watch?v=Qy4sQq4P7uo&ab_channel=HungryManKitchen)
+
 [Italian leek and garlic soup](https://www.youtube.com/watch?v=GdcCVZ_D7hQ&ab_channel=Recipe30)
 
 [Tuscan bean soup](https://www.youtube.com/watch?v=_SMTu3-md3U&ab_channel=FoodWishes)
@@ -97,6 +99,8 @@ It depends on the potatoes you have.
 
 [Daikon and Carrots](https://www.youtube.com/watch?v=Q5ieUyPSxBo&ab_channel=ThunThunChannel)
 
+[Gochujang Garlic Tofu Rice Bowl](https://www.youtube.com/watch?v=y_1AVqirnH0&ab_channel=AaronandClaire)
+
 ### To try
 
 [Kanda Bhajji with onion chutney](https://www.youtube.com/watch?v=7B5KEtf37ec)
@@ -109,15 +113,11 @@ It depends on the potatoes you have.
 
 [Lentil Curry](https://www.youtube.com/watch?v=vDS9JZfEnuY&ab_channel=YeungManCooking)
 
-[Gochujang Garlic Tofu Rice Bowl](https://www.youtube.com/watch?v=y_1AVqirnH0&ab_channel=AaronandClaire)
-
-[Muhammara](https://www.youtube.com/watch?v=Qy4sQq4P7uo&ab_channel=HungryManKitchen)
-
 [Chilli Pork](https://www.youtube.com/watch?v=VjVYttymMTA&ab_channel=BongEats)
 
 [Salsa Roja & Salsa Verde](https://www.youtube.com/watch?v=wZBEwjzcmjw&ab_channel=ArnieTex)
 
-[Fasolada](https://www.youtube.com/watch?v=1s22lUYEOQI&ab_channel=AkisPetretzikis)
+[Creamy Garlic Sun Dried Tomato Chicken](https://www.youtube.com/watch?v=uV6osDkSbYA&ab_channel=ChefJackOvens)
 
 ### Youtube channels
 
